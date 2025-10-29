@@ -1,1 +1,1 @@
-# ejercicio1
+Samuel Vivas Jiménez
